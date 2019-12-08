@@ -2,7 +2,7 @@
 
 JO eun Chong
 
-lim Huyn gill
+Yim Hyun gill
 
 Cho seong Hyeok
 
